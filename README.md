@@ -1,5 +1,7 @@
 # LLC Operating Agreement: What It Is & Why You Need One
 
+**Disclaimer: we earn commissions when you shop through the links below**
+
 Forming a Limited Liability Company (LLC) is a smart move to safeguard your personal assets and establish a structured business.
 
 A critical document for keeping your LLC compliant and efficient is the **LLC Operating Agreement**.
